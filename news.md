@@ -1,13 +1,13 @@
-![Image of police at the crime scene](./image.jpg)
+![Image of the First Person at the Crime Scene](./image.jpg)
 
-Colchester, UK - Another brutal murder has rocked the town of Colchester, leaving residents in shock and fear. The incident occurred on the night of November 12th, 1976, when the body of a young woman was discovered in a secluded area of town.
+Colchester, UK - A wave of fear has swept through the town of Colchester, as yet another murder has occurred within its borders. The latest incident took place on the night of August 6th, 1977, leaving residents shaken and police scrambling to investigate.
 
-The victim, identified as Mary Jones, was a local resident and had been reported missing by her family the day before. Her body was found in a ditch near a small forest, and the police were immediately called to the scene.
+The victim, identified as William Brown, was a local shopkeeper who had been well-respected in the community. His body was found in his store, which had been ransacked and robbed. It appeared that the perpetrator had broken in through the back door and attacked Brown, leaving him with fatal injuries.
 
-The investigation into the murder has revealed that Jones had been strangled to death, and evidence at the scene suggests that she had put up a fight before being overpowered. The police have been unable to determine a motive for the crime and are currently pursuing all possible leads. Currently three suspects are in custody: The *gardener* of the abandoned Smith mansion, the local *barber* as well as the local *carpenter*.
+The police have launched an extensive investigation into the crime and have urged anyone with information to come forward. Evidence at the scene suggests that the perpetrator may have been looking for something specific and may have had knowledge of Brown's business dealings.
 
-Authorities have expressed concern that this latest incident may be linked to a string of unsolved murders that have occurred in the area over the past few years. While the police have not confirmed any connections, they have stated that they are investigating all possibilities and have increased patrols in the area.
+Residents of Colchester have expressed outrage and fear at the recent spate of violent crimes in their town. Many are calling for increased police presence and more stringent measures to ensure the safety of the community.
 
-Residents of Colchester have expressed outrage and fear at the recent string of violent crimes in their town. Many are calling for increased police presence and stricter measures to ensure the safety of the community.
+Authorities have assured the public that they are doing everything in their power to bring the perpetrator to justice and have increased patrols in the area. They have also stated that they are investigating all possible leads and currently in talks with the three people found at the scene: Mr. Benjamin Edwards, who used to be working as a *butler* at the Smith mansion; Mrs. Amelia Rosewood who has been working as the *carpenter* in town for many years and Mr. Charles Fletcher, who *can be seen alongside his craft* in the picture above.
 
-As the investigation into Mary Jones' murder continues, the town of Colchester is left reeling from the shock and horror of this latest crime. Authorities have urged anyone with information to come forward and assist in the investigation, promising to do everything in their power to bring the perpetrator to justice.
+As the investigation continues, the town of Colchester is left mourning the loss of another of its citizens and hoping for an end to the violence that has plagued the community in recent years.
